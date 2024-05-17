@@ -1,4 +1,4 @@
- 👋 Olá, me chamo denner
+ 👋 Olá, me chamo Denner
   
 - ✨ Tenho 15y
 - ✨ Aprecio a cultura japones 🇯🇵
